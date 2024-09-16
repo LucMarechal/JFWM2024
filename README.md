@@ -1,1 +1,1 @@
-![JFWM2024_Banner_git](https://github.com/user-attachments/assets/76552130-5701-482e-a157-2c224e2ad465)
+![JFWM2024_Banner](https://github.com/user-attachments/assets/fbadd972-a2e0-4acd-a65c-5889adb8d18a)
